@@ -1,4 +1,4 @@
-# **🌟 Welcome to the Divine AR Experience! 🌟**
+# **🌟 Welcome to the Divine AR Experience!**
 
 **🕉️ Step into the World of Divine Wonders! 🕉️**  
 Embark on a spiritual journey as Indian gods, goddesses, and sacred temples come to life in stunning **Augmented Reality**! Watch as **realistic 3D models** of deities and temples appear right before your eyes, offering a unique blend of culture, mythology, and technology.
